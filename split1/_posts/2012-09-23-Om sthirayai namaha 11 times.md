@@ -4,16 +4,8 @@ title: Om Sthirayai namaha 11 times
 youtubeId: X-0dMOmXWkw
 ---
  
- 
-Helps get goodness, bliss and peace and God's blessings
- 
-Helps remain focused, help generate inner energy 
- 
-Helps boost physical and mental health 
- 
-Helps remain grounded and generates a sense of gratitude towards the greater power 
- 
-Helps reduce bad karma
+ Om Sthirayai namaha -
+Salutations to Him who is perennial
  
  
  
