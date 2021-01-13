@@ -5,15 +5,15 @@ youtubeId: j-j81c4lRds
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarvasmai nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is spread in everything 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

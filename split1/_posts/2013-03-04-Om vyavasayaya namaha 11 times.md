@@ -5,15 +5,15 @@ youtubeId: _JxyBz-A4Jk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vyavasayaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is industrious or Who is of the form of definite action 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

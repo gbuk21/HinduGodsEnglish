@@ -5,15 +5,15 @@ youtubeId: rUuDo5Bgve0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sathkruthya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is worshipped by every one 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

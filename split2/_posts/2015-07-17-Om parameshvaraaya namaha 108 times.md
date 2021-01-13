@@ -5,15 +5,15 @@ youtubeId: p_FJVr23B6Y
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Dandine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a stick in his hand (like a Brahma chari) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

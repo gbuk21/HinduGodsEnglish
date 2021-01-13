@@ -5,15 +5,15 @@ youtubeId: KgSJA5cErgc
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vaidyaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is full of knowledge/Who is the doctor 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

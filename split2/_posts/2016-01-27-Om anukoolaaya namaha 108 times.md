@@ -5,15 +5,15 @@ youtubeId: 3bZRAji2zgc
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Amaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who does not die 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: 0D5sOBLpI-o
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Gambheera ghoshaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who produces great sound 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

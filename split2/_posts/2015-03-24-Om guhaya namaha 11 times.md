@@ -5,15 +5,15 @@ youtubeId: bhtERrJ9cM4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Guhaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in hiding 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

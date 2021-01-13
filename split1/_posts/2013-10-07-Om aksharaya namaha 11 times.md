@@ -5,15 +5,15 @@ youtubeId: S0Ykry1AfY8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Aksharaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who does not have decay 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

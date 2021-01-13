@@ -5,15 +5,15 @@ youtubeId: BEc9o2Ul3uM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarangaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has perfect organs 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

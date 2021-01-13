@@ -5,15 +5,15 @@ youtubeId: cKNnG4bWvVU
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Laghave nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who easily showers his grace 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: 4HbXz1ITFIk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarvashubamkaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who grants all good things 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

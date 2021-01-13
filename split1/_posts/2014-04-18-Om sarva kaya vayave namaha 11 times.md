@@ -5,15 +5,15 @@ youtubeId: Zjr416vw6Go
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarva kaya Vayave nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in the form of air within all beings/Who is in the form of wind which is everywhere 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

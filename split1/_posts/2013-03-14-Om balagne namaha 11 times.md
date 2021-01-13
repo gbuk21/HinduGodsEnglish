@@ -5,15 +5,15 @@ youtubeId: PqpJlH2mzcI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Balagne nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who kills those bloated by strength 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

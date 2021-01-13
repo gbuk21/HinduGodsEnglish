@@ -5,15 +5,15 @@ youtubeId: FKIqa1kO1Ec
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Kamandaludaraaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has with him the pitcher(Carried by sages) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

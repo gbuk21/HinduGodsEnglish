@@ -5,15 +5,15 @@ youtubeId: TkeEJd2Kx5I
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Visthara lavana koopaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is like the very broad saltish well 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

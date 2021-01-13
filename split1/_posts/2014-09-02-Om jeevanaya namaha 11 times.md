@@ -5,15 +5,15 @@ youtubeId: nsEvia1k1aY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Jeevanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the soul(Who is our occupation) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

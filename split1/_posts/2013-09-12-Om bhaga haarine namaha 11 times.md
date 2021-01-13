@@ -5,15 +5,15 @@ youtubeId: hGh6ZtaObQA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bhaga haarine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who steals the wealth and fame 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

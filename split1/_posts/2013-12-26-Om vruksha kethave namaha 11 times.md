@@ -5,15 +5,15 @@ youtubeId: UEz_-Q5HggA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vruksha kethave nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a flag of a tree 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

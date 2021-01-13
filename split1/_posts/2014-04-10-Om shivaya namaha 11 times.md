@@ -5,15 +5,15 @@ youtubeId: fIg42actcOs
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Shivaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the purest under any condition 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

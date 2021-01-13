@@ -5,15 +5,15 @@ youtubeId: T8dunuxxJ6g
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Pakshaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the lunar fortnight 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: sB7w5l92_Ho
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Guna budhaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who knows/measures qualities 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

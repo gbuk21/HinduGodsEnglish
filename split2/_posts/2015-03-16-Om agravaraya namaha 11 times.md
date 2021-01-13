@@ -5,15 +5,15 @@ youtubeId: VpHrCs36CGI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Agravaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the first among those given Havirbhaga in sacrifices 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

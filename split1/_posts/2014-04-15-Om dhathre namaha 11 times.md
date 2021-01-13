@@ -5,15 +5,15 @@ youtubeId: 5HtnPhrIdW0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Dhathre nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in the form of Lord Brahma 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

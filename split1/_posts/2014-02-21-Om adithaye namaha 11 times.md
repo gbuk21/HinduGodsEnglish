@@ -5,15 +5,15 @@ youtubeId: PlX60K5r5EE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Adithaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the God mother called Adithi 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

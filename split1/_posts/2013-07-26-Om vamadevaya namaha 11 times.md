@@ -5,15 +5,15 @@ youtubeId: kZ6zG0XQX6s
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vamadevaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who gives the prize deserved according to ones actions 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: e4m3AUKwp80
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha padaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a very big feet 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

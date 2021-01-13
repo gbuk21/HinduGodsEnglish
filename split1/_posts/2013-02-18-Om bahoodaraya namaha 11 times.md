@@ -5,15 +5,15 @@ youtubeId: -_OSWCFMdK8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bahoodaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who carries this great Universe 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

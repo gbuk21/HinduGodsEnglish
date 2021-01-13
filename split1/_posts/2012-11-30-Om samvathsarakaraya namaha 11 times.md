@@ -5,15 +5,15 @@ youtubeId: j_IrAB9yPoo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Samvathsarakaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who makes the wheel of time to rotate 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

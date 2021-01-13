@@ -5,15 +5,15 @@ youtubeId: nHQ7p06oAnQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Subalaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has the strength that serves others 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

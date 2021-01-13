@@ -5,15 +5,15 @@ youtubeId: tsM1rWi85g8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bahu vidhyaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who knows several aspects of knowledge 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

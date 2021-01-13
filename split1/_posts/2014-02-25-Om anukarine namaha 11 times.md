@@ -5,15 +5,15 @@ youtubeId: OkeMkbRHpSY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Anukarine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who obeys the wishes of devotees 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

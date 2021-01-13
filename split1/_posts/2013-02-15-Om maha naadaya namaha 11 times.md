@@ -5,15 +5,15 @@ youtubeId: Rxk5-BKLDMY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha naadaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is personification of the great sound 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

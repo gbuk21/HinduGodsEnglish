@@ -5,15 +5,15 @@ youtubeId: VtTHJJRYSQs
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Kuru bhoothaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the Karma sthana and Upasana sthana at Kuru Kshethra(place of duty and meditation) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

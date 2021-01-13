@@ -5,15 +5,15 @@ youtubeId: 2gG400EaIPQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Senapathaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the commander of the army 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

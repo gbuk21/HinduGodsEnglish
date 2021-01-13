@@ -5,15 +5,15 @@ youtubeId: U901Ll6lsL8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Prakrushtaraye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who completely wipes out enemies (Like passion  anger etc) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: qk2O9Lw20LA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Hastheswaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who resides in Kala hasthi/Who is the form of air 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

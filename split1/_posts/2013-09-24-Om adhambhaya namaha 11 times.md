@@ -5,15 +5,15 @@ youtubeId: Io527B1UKTw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Adhambhaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who cannot be controlled by others 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

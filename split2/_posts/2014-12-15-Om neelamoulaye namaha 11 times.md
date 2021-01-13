@@ -5,15 +5,15 @@ youtubeId: xUaC9TRD6eM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Neelamoulaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who wears a crown embedded with blue stone 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

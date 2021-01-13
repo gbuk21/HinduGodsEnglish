@@ -5,15 +5,15 @@ youtubeId: VLoDJ3IDR6c
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Nijaya Sargaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in truth evolved himself 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: XumlvA9m7GA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om SArvagnaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who knows everything 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

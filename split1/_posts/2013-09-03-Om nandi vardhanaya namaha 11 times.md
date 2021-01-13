@@ -5,15 +5,15 @@ youtubeId: NqRp1Xt-nPk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Nandi vardhanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who increases happiness of devotees/Who destroys the wealth of his enemies 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

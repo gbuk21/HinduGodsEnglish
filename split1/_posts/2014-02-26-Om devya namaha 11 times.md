@@ -5,15 +5,15 @@ youtubeId: iOKFFVx1t1E
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Devya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has wish to win 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

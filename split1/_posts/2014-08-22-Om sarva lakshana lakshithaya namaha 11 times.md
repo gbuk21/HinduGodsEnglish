@@ -5,15 +5,15 @@ youtubeId: 4Pw5YGnK_tM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarva lakshana lakshithaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the treasure house of all good qualities 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: v3WNOTHXb_4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Abhaloganaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who organizes and activates the Pancha bhoothas 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: kSVFeyZfOzM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Srivardhanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who gives wealth to hs devotees 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

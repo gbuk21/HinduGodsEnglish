@@ -5,15 +5,15 @@ youtubeId: NEPNADx9pkM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Surarigne nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who kills enemies f devas 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

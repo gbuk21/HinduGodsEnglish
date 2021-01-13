@@ -5,15 +5,15 @@ youtubeId: Db1OfJCQbRk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Ghoraaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a terrible form 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: 8XFgBWXQ9ew
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bahoo bhoothaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who also has the form of strength 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

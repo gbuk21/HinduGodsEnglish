@@ -5,15 +5,15 @@ youtubeId: DdnGqbGwlLg
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Mahagarbhaparaayanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who carries in his belly the entire world during deluge 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

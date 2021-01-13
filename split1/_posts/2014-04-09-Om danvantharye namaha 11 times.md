@@ -5,15 +5,15 @@ youtubeId: jILb0D0IvC4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Danvantharye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the doctor for all diseases 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

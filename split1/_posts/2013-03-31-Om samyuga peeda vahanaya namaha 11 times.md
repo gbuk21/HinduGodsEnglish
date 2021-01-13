@@ -5,15 +5,15 @@ youtubeId: 7iJs65khL4g
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Samyuga peeda vahanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has the bull as the flag as well as stride 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

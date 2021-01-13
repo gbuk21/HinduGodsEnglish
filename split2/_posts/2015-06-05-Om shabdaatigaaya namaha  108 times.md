@@ -5,15 +5,15 @@ youtubeId: LXBYmpFuov8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Nyaya nirva panaaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who gave the Nyaa sasthra to the world 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

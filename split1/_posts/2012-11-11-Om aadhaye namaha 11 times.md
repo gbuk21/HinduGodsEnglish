@@ -5,15 +5,15 @@ youtubeId: oQWGDquXnjI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om AAdhaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is most ancient Who is first among beings 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

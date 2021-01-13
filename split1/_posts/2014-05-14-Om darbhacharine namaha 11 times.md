@@ -5,15 +5,15 @@ youtubeId: KNqQ3GQdzLs
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Darbhacharine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who receives Havirbhagas (Offering at time of sacrifice) kept on Dharbha grass 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

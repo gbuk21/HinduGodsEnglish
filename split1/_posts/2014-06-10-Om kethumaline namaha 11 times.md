@@ -5,15 +5,15 @@ youtubeId: 3MJrcn9H7n4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Kethumaline nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who shines in his flag/Who is of the form of birds with crown 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

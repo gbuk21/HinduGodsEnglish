@@ -5,15 +5,15 @@ youtubeId: Ooxq7g3OCqM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bhothalayaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has the temple in Pancha bhoothas 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

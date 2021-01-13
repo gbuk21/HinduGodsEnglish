@@ -5,15 +5,15 @@ youtubeId: 44oqM2Q0_g0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om DEvasureswaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the ruler of Devas and Asuras 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

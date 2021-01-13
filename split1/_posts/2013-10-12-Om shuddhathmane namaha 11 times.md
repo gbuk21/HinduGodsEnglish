@@ -5,15 +5,15 @@ youtubeId: 3val_xPRYBc
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Shuddhathmane nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is having a very clean mind 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

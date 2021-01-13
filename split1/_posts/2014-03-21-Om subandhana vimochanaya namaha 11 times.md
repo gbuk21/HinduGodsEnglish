@@ -5,15 +5,15 @@ youtubeId: Wv8pnZ_REO0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Subandhana vimochanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who releases us from the ties of life 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

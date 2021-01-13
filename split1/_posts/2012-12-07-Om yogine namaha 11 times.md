@@ -5,15 +5,15 @@ youtubeId: kSSTC7K5Z1M
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Yogine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who in a great Yogi 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: vn6lZsQk8Uk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Shikhandine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has hair flowing like the peacock’s feather 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: f_dQF_oPoIA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Brahmane nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the ultimate truth 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

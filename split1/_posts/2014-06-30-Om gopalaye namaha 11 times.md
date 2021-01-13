@@ -5,15 +5,15 @@ youtubeId: U8xzuS1Gwxw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Gopalaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who protects sense organs 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

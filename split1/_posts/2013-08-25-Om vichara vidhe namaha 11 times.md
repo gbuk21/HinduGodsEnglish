@@ -5,15 +5,15 @@ youtubeId: Ep0NAsVcZb8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vichara vidhe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who knows enquiry of truth 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: VbCxHVUkQgA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Khagaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is like the bird which is always with the tree of life 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: GrvovEoehdo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Nyagrodha roopaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of the form of the tree of day to day life which grows downwards 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

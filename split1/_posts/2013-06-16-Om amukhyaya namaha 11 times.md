@@ -5,15 +5,15 @@ youtubeId: 5HS4ipoX0Xw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Amukhyaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who does not have a chief 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

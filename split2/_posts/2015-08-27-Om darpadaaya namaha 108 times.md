@@ -5,15 +5,15 @@ youtubeId: _hFBhS8IbcQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om saraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of the form of a bow 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

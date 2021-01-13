@@ -5,15 +5,15 @@ youtubeId: qiizHvoeD6c
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Rudraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who removes sorrows 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

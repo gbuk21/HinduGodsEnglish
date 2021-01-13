@@ -5,15 +5,15 @@ youtubeId: G6ueOyoWgVE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Nirjeevaaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is even in lifeless objects 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: l2_Z4xgpxII
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bala veeraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who destroys his enemies by his prowess 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

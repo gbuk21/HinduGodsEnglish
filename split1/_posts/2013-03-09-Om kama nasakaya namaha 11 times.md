@@ -5,15 +5,15 @@ youtubeId: mOr_64K2keI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Kama nasakaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who killed the God of love 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

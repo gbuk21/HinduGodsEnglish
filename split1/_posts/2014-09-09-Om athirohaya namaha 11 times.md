@@ -5,15 +5,15 @@ youtubeId: NasoN2kLp1A
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Athirohaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in the top level 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

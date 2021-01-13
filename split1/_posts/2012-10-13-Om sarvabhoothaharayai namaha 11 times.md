@@ -5,15 +5,15 @@ youtubeId: qW1iOYhKYX0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarvabhoothaharayai nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who destroys all beings which exist 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

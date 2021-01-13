@@ -5,15 +5,15 @@ youtubeId: J1quFyOKeKo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Ugra thejase nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is having terrific power of a flame 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: v6Lhod5RWe0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Avaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who does not have any one above him 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

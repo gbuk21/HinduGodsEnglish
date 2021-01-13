@@ -5,15 +5,15 @@ youtubeId: lb_IgZohwwQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Nyagrodhaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who assumes the form of Dakshinamurthy   under a banyan tree 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

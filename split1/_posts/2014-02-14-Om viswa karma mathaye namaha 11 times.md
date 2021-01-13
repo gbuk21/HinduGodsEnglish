@@ -5,15 +5,15 @@ youtubeId: j6v33tDvrr4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Viswa karma mathaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who understands all actions of the world 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

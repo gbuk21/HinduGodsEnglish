@@ -5,15 +5,15 @@ youtubeId: s9oYKb9dtK4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sakalaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is every where 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

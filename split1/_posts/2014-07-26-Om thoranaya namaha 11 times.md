@@ -5,15 +5,15 @@ youtubeId: 18HccoqsgS8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Thoranaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the gate to salvation 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

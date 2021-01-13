@@ -5,15 +5,15 @@ youtubeId: 4Rv8fJdOHME
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sena kalpaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who creates armies by just thought 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: mKInc7JDqPQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Thumbhaveenaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a lyre(veena) made out of two bottle gourds This is called the Rudra Veena 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

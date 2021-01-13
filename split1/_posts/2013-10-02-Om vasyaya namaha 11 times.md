@@ -5,15 +5,15 @@ youtubeId: JJM3u83SbWI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vasyaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who can be controlled by devotion 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

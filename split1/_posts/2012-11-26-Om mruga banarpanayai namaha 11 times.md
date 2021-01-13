@@ -5,15 +5,15 @@ youtubeId: e6Flt80LVO4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Mruga banarpanayai nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who sent arrow against the deer sent by sages of Daruka forest 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

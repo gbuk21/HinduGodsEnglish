@@ -5,15 +5,15 @@ youtubeId: W-G9CkVJN4s
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Gandaline nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who lives on the hilly terrain 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

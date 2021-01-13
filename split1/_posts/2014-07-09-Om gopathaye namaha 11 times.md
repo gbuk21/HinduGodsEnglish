@@ -5,15 +5,15 @@ youtubeId: vV25_feB8jQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Gopathaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who rules the earth 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

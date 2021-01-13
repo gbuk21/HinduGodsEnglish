@@ -5,15 +5,15 @@ youtubeId: k2oxz_-_X0k
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarva dharine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who wears /carries every thing 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

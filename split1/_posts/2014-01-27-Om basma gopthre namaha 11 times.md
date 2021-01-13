@@ -5,15 +5,15 @@ youtubeId: styx7b5lX7Y
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Basma gopthre nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who protects the world using sacred ash 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

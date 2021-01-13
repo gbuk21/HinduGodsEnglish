@@ -5,15 +5,15 @@ youtubeId: -RC203bIkOA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vajasanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who made the Vajasena branch of Vedas in the form of Sun 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

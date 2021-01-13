@@ -5,15 +5,15 @@ youtubeId: DaSnBBnUM6Y
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha balaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has immense strength 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: nx_CT2J7v1M
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Gambheeraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is beyond the intellect 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

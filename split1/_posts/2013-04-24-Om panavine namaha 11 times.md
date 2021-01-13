@@ -5,15 +5,15 @@ youtubeId: 5ZiLefkOPSA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Panavine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a shaking drum in his hand 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

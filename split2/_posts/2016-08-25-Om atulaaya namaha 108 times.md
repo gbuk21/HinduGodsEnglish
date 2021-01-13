@@ -5,15 +5,15 @@ youtubeId: vmYUR4G76vQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarva lochanaaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who sees everything (Who has eyes every where) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

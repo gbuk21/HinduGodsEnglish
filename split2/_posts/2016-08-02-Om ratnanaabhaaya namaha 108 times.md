@@ -5,15 +5,15 @@ youtubeId: fa2ZA44-8a4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Parayai gathyai nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the best way to salvation 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

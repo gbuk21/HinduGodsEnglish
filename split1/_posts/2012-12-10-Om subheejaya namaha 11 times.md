@@ -5,15 +5,15 @@ youtubeId: ZvkVsAOq_UM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Subheejaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is a good seed 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

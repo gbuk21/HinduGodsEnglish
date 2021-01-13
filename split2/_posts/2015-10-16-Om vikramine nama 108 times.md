@@ -5,15 +5,15 @@ youtubeId: 5jRsQwz5_TE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Hladhanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the one who creates happiness 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

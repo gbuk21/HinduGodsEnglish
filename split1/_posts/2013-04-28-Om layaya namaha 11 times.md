@@ -5,15 +5,15 @@ youtubeId: fq_JCkwOGh4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Layaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the source where everything merges in the end. 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

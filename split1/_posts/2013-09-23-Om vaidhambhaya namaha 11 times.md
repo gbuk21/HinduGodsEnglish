@@ -5,15 +5,15 @@ youtubeId: WFokQ1b1GrI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vaidhambhaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is dear to those who are not proud 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

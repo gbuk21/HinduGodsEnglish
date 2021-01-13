@@ -5,15 +5,15 @@ youtubeId: 1hES2Cqcnmw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Naikathmane nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who does not have body 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

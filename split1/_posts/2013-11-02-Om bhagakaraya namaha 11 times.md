@@ -5,15 +5,15 @@ youtubeId: 8vp-SajEKfQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bhagakaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who gives the shares to other devas in the fire sacrifice 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

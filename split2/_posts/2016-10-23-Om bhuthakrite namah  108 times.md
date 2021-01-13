@@ -5,15 +5,15 @@ youtubeId: sx4EpYef1zY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vajrine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is as hard as diamond 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

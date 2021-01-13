@@ -5,15 +5,15 @@ youtubeId: SyeG-iEU2kw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sathagni pasa shakthimathe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a weapon called Sathagni(capable of killing one hundred people)   pasa  Shakthi etc  
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

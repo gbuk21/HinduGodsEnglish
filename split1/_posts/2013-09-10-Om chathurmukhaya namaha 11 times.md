@@ -5,15 +5,15 @@ youtubeId: apjJZtGP-KE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Chathurmukhaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has four faces when he takes the form of Brahma 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

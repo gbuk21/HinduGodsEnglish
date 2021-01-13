@@ -5,15 +5,15 @@ youtubeId: QCmczOnFVac
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om theskaraaya nidhaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is like the treasure giving light to devotees 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

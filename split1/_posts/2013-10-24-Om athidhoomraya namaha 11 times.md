@@ -5,15 +5,15 @@ youtubeId: ZeE1wQdFhmY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Athidhoomraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who creates lot of smoke as he burns everything 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

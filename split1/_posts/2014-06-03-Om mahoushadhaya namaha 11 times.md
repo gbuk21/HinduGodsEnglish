@@ -5,15 +5,15 @@ youtubeId: F9kNA8oJN_s
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Mahoushadhaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the greatest medicine in the form of food 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

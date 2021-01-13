@@ -5,15 +5,15 @@ youtubeId: sRr8xS72Mjk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Samaasyaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has Sama veda as face 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: 9DKHksPyxYw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Balaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has strength 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

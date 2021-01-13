@@ -5,15 +5,15 @@ youtubeId: PkDChQDAJ6g
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sargaya susamkshepaya vistharaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the author of Suthras which are abbreviated knowledge and also Puranas which are knowledge in detail 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

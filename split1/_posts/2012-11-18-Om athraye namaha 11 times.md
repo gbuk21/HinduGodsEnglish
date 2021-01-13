@@ -5,15 +5,15 @@ youtubeId: dMqv3_1XcCQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Athraye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is form of Mercury bon in Athri clan 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

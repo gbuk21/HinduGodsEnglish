@@ -5,15 +5,15 @@ youtubeId: GfhTuJv3f8k
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Nilayaa nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the resting place of al beings 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

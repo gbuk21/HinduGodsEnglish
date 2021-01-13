@@ -5,15 +5,15 @@ youtubeId: B1PhFPLcHFM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Achinthyaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who cannot be reached by meditation 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

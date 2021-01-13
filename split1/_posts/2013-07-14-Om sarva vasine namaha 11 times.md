@@ -5,15 +5,15 @@ youtubeId: 9uf3wPEzBn0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarva vasine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who resides in everything 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

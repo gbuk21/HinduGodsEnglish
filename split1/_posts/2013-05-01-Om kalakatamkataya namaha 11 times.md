@@ -5,15 +5,15 @@ youtubeId: Azv7fMELiq8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Kalakatamkataya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the gate for the gate of god of death who is of the form of time. 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: z4BgYS99Fbo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Anthar hithathmane nama 
  
-Helps remain focused, help generate inner energy 
+ -  One who has properties which within him and not visible 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

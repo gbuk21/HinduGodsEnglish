@@ -5,15 +5,15 @@ youtubeId: VV6VDlN4O6M
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Guhaaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of the form of Lord Subrahmanya 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

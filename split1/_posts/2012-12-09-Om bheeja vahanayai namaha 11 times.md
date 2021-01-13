@@ -5,15 +5,15 @@ youtubeId: jGHYTuyhPmo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bheeja vahanayai nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who rides on the seed 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

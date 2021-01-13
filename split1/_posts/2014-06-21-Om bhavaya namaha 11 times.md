@@ -5,15 +5,15 @@ youtubeId: grQDqG7AORo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bhavaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the reason for creation of all beings 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

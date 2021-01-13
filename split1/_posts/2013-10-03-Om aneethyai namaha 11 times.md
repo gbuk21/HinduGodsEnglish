@@ -5,15 +5,15 @@ youtubeId: O0gSG-vVdWk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Aneethyai nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who cannot be ruled by others 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

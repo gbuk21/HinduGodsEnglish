@@ -5,15 +5,15 @@ youtubeId: xEvsmzXReXM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Himavad giri amsrayaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who possesses the Himalaya mountains 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

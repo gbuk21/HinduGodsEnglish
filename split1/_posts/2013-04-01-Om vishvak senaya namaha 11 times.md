@@ -5,15 +5,15 @@ youtubeId: hARXX3LIAN8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vishvak senaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who scatters the Asura army in to different directions 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

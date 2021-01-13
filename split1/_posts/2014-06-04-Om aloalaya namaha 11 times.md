@@ -5,15 +5,15 @@ youtubeId: 7FuZc1t9qPs
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Aloalaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who does not have any desires 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

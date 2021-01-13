@@ -5,15 +5,15 @@ youtubeId: qTZ8dKseU5w
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vishnu prasadithaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has been pleased by the devotion of Vishnu 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

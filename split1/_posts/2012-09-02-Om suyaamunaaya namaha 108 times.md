@@ -5,15 +5,15 @@ youtubeId: f1uniu2i1Bg
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Saganaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is with various Ganas 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

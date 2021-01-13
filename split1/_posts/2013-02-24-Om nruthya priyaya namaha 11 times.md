@@ -5,15 +5,15 @@ youtubeId: UjRS5VhPHoQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Nruthya priyaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who likes dancing 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

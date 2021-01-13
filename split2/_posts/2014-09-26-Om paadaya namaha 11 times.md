@@ -5,15 +5,15 @@ youtubeId: 9bWrr5Ju_v8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Paadaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the final destination 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

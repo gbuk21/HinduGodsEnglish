@@ -5,15 +5,15 @@ youtubeId: FQtSSazKkos
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bala vathe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has very great strength 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

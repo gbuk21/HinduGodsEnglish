@@ -5,15 +5,15 @@ youtubeId: 7oXeJTpQsoc
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Swarna rethase nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has gold like seeds 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: lvdA1tK69CI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Yudhi shathru vinasanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who kills enemies in war. 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: VaLOglM-u50
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Gorathapase nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who does terrible penance during time of deluge 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

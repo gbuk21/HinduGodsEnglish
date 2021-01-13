@@ -5,15 +5,15 @@ youtubeId: BsTXz4RPuvs
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Asurendranaam bandanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the reason for imprisonment of kings of asuras 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

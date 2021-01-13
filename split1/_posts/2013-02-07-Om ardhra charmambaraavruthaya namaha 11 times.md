@@ -5,15 +5,15 @@ youtubeId: LBOIanvDwWs
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Ardhra charmambaraavruthaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who uses the blood soaked elephant hide to cover himself 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

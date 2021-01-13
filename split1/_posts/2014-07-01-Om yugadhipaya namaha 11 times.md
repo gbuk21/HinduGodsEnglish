@@ -5,15 +5,15 @@ youtubeId: aZ-G7CrZHSw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Yugadhipaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the king of conflicting emotions like hot /cold etc/Who is the chief in a Yuga 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: TkFom2ETG8o
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Padmanalagraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who was before Brahma was born in a lotus 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: BHEZGKRw0fc
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Brhama vidhe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is an expert in Vedas 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

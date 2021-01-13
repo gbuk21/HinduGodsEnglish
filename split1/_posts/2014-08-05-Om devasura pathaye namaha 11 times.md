@@ -5,15 +5,15 @@ youtubeId: DONj0lhCaS0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Devasura pathaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the lord of Asuras and Devas 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

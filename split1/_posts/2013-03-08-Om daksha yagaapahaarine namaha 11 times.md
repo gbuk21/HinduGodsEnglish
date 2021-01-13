@@ -5,15 +5,15 @@ youtubeId: VU8jnI2dGpI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Daksha Yagaapahaarine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who destroyed the fire sacrifice of Daksha 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: DXTvMEHvvqM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Badavamukhaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the form of fire which dries water 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

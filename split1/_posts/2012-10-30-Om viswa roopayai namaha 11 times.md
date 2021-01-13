@@ -5,15 +5,15 @@ youtubeId: Bp9CyK22GDw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Viswa roopayai nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is seen everywhere 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

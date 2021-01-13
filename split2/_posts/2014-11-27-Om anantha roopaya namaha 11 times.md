@@ -5,15 +5,15 @@ youtubeId: 5hfTA_ozgLc
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Anantha roopaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has several forms 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

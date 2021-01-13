@@ -5,15 +5,15 @@ youtubeId: t_uuuXO4GNQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Adheenaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is not poor though he looks like it 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

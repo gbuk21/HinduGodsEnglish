@@ -5,15 +5,15 @@ youtubeId: m1a9InueW_E
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Ishanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who conducts everything with attention 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

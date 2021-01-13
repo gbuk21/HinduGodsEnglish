@@ -5,15 +5,15 @@ youtubeId: e87ZLvWtekw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Brahmacharine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is one with Brahmam 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

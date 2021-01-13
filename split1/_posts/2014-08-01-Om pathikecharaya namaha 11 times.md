@@ -5,15 +5,15 @@ youtubeId: W-OF8GFWmwE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Pathikecharaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in the form of king of birds Garuda 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

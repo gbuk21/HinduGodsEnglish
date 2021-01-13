@@ -5,15 +5,15 @@ youtubeId: s905GdLQwA0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Siddha bhootharthata nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the benefit got by people who do penance 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

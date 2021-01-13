@@ -5,15 +5,15 @@ youtubeId: rJFldIho8BY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Aryamne nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in the form Aaryama who is a God of manes 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: UTCyRmGWkQU
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Adryaa namaskarthre nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who saluted Anasooya   the wife of Sage Athri 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

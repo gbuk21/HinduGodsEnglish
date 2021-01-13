@@ -5,15 +5,15 @@ youtubeId: wU3BgVU-TjI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Pasaaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who ties every one with the rope of illusion 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

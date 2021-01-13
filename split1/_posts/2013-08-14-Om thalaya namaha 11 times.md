@@ -5,15 +5,15 @@ youtubeId: DObzKGVR9aU
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Thalaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who knows the bottom of the ocean of day today life 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

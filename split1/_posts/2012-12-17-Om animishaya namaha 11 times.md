@@ -5,15 +5,15 @@ youtubeId: olvKWPo_Vyo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Animishaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who does not blink his eyes 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

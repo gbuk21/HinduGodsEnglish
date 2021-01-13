@@ -5,15 +5,15 @@ youtubeId: dVXR-7icSQE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarvathodhya parigrahaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who considers all beings as his family 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

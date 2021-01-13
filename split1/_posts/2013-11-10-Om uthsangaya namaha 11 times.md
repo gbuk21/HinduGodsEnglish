@@ -5,15 +5,15 @@ youtubeId: BO_EzQLViTw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Uthsangaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is not attached 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

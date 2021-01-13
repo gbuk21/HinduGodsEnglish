@@ -5,15 +5,15 @@ youtubeId: y4DM7wiZIPs
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vasavaaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in the form of Indra 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: e6fUsNaxD-0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Huthasanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of the form of fire 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

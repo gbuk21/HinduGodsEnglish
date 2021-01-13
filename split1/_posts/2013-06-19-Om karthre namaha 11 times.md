@@ -5,15 +5,15 @@ youtubeId: uQrDpN3v3Zw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Karthre nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who creates and looks after everybody 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

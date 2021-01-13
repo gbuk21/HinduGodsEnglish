@@ -5,15 +5,15 @@ youtubeId: AFQz1LbiIVQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Loka dathre nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who rules over this world 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

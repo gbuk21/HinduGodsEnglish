@@ -5,15 +5,15 @@ youtubeId: o3EgYNyVfGc
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha geethaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who likes very good music 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

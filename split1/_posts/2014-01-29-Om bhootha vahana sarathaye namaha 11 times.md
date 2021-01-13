@@ -5,15 +5,15 @@ youtubeId: WtHqYL0WnwU
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bhootha vahana sarathaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Whose Charioteer is Brahma who leas the ganas 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

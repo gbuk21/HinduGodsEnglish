@@ -5,15 +5,15 @@ youtubeId: u2ywDWMDk7g
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Swarga dwaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the gateway to heaven 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: 98VYbW7gyMo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Agnijwalaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is like the flame of the fire 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

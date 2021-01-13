@@ -5,15 +5,15 @@ youtubeId: N54V-QIFKfc
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bandhakarthre nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who ties us to the day to day life 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

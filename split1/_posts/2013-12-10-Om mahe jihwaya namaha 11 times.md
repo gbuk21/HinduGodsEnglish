@@ -5,15 +5,15 @@ youtubeId: fVLwgJgaxGA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Mahe jihwaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a very big toungue 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

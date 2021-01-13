@@ -5,15 +5,15 @@ youtubeId: LZJ_M_CJ39c
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Simha nadaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a royal voice like that of a lion 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: RwRreN3S5h0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Viswa kshethraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the area from which universe grew 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

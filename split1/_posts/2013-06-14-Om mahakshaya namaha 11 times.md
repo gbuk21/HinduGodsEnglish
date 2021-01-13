@@ -5,15 +5,15 @@ youtubeId: qxoL3DWZ4t8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Mahakshaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has senses which are spread everywhere 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

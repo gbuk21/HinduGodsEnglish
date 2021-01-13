@@ -5,15 +5,15 @@ youtubeId: oyjz6b_JQBs
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Riksaharamithekshanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has thousands of Rik Veda mantras as eyes 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

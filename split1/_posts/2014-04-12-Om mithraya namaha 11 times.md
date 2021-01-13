@@ -5,15 +5,15 @@ youtubeId: voCge-rwza0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Mithraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in the form of Sun God(Who measures everything) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

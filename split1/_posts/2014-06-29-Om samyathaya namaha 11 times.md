@@ -5,15 +5,15 @@ youtubeId: EbRUr2u6rfI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Samyathaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is bound by his devotees 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

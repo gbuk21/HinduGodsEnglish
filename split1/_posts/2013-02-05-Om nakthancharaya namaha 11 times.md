@@ -5,15 +5,15 @@ youtubeId: zUr1lJ46tvY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Nakthancharaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of the form of devas who move at night 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

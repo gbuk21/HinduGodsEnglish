@@ -5,15 +5,15 @@ youtubeId: JKybmcYAJ5A
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Chandanine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is being bathed in sandal paste 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

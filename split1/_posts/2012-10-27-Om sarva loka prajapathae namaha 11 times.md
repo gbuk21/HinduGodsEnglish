@@ -5,15 +5,15 @@ youtubeId: 52_JnnEY-eI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om sarva loka prajapathae nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the lord of all beings of all worlds 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

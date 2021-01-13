@@ -5,15 +5,15 @@ youtubeId: 2gtTBGtsQUg
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Chakraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in the form of Devendra 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

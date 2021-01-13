@@ -5,15 +5,15 @@ youtubeId: e03U9I0V6lo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Mathimathe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of the form of intelligent 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

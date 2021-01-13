@@ -5,15 +5,15 @@ youtubeId: cstSKfl4vYU
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bhootha charine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who travels with Bhoothas( Five elements/evil spirits) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

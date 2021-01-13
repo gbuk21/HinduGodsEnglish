@@ -5,15 +5,15 @@ youtubeId: M3mnPx7loYg
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Gajagne nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who killed the Asura who took the form of an elephant 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

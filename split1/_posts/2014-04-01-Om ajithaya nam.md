@@ -5,15 +5,15 @@ youtubeId: 0upj7y5NH-I
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Ajithaya nam 
  
-Helps remain focused, help generate inner energy 
+ -  Who cannot be won by the three qualities 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

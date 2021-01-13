@@ -5,15 +5,15 @@ youtubeId: KUYwuZ7U21w
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Mahaangaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in the form of big Linga(body) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: NeVRSsMWd0I
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Chalaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who cannot be caught 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

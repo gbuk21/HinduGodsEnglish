@@ -5,15 +5,15 @@ youtubeId: WG7WHb4BzyA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Krishna pingalaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is blackish red in colour 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

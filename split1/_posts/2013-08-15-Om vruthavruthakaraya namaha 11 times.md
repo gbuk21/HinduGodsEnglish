@@ -5,15 +5,15 @@ youtubeId: g_1wBVbMwAw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vruthavruthakaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who circles the enemy in his chariot and who returns back after defeating them without wounds 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

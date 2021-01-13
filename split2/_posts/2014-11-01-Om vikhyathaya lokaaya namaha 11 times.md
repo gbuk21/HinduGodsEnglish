@@ -5,15 +5,15 @@ youtubeId: wa32tFGSV7I
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vikhyathaya lokaaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is being seen from everywhere(Who has a famous residence) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

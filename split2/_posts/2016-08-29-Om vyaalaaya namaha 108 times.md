@@ -5,15 +5,15 @@ youtubeId: 00HbUi-phps
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sadyarshaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who gives knowledge to Sadhyas who are devas for devas 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

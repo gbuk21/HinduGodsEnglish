@@ -5,15 +5,15 @@ youtubeId: sXQrA939XpQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vijaya kala vidhe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who knows the time for victory 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: xmOVAwSRNzs
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Brahma danda vinir mathre nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who punishes Lord Brahma 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

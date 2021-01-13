@@ -5,15 +5,15 @@ youtubeId: V1_s_kWc1wY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarva yogine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is merged with every thing 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: c6b3ucqwh1I
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha karnaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has very big ears 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

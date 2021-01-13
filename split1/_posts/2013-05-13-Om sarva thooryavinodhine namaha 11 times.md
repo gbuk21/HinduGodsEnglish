@@ -5,15 +5,15 @@ youtubeId: VtHubsJqdGQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarva thooryavinodhine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who enjoys all types of instrumental music 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

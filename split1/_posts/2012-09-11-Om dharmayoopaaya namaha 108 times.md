@@ -5,15 +5,15 @@ youtubeId: 8PuX-1ODmFY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Angalubhdhaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is present in a part of his body 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

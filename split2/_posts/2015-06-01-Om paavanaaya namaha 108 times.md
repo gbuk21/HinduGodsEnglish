@@ -5,15 +5,15 @@ youtubeId: QL147jcbhR8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Lalatakshaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has an eye on his forehead 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

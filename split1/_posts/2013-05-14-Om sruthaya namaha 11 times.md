@@ -5,15 +5,15 @@ youtubeId: kjeoAfbJ1eo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sruthaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is spread everywhere 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

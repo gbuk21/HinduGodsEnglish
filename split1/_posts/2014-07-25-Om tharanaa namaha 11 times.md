@@ -5,15 +5,15 @@ youtubeId: 3y1WcxvGhLk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Tharanaa nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who makes us cross the ocean of life 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

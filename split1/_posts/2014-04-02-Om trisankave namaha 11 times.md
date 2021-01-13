@@ -5,15 +5,15 @@ youtubeId: MECVeEUvx_g
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Trisankave nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the axis for the three qualities of Sathva  Rajas and Thamas 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

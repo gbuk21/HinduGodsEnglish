@@ -5,15 +5,15 @@ youtubeId: 4fKCeMSZk58
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vakulaa nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in the form of tree yielding Vakula flowers 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

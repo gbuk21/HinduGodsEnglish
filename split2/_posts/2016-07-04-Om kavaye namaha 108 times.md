@@ -5,15 +5,15 @@ youtubeId: HvIk1-fEEeU
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Jahnavi druthe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who wears river Ganga on his crown 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

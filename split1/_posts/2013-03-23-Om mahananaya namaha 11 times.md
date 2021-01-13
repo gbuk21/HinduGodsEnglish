@@ -5,15 +5,15 @@ youtubeId: hDbIC6fVEUQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Mahananaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a very big face 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

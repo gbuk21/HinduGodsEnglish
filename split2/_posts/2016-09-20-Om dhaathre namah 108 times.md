@@ -5,15 +5,15 @@ youtubeId: jIJBOzPLQGU
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maathraabhyo nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is Mathras  another measurement of small time 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

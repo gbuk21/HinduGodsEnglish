@@ -5,15 +5,15 @@ youtubeId: KNH_6fAKR1s
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Suvarchisine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has pretty rays 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: yBUy3IjVNzI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Gandhapaline bhagawathe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who saves the memories of previous births a time of deluge 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

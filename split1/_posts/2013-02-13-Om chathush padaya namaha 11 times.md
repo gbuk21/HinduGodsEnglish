@@ -5,15 +5,15 @@ youtubeId: vTi5RW_pmXE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Chathush padaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who can be worshipped in four ways such as  Charya (chant)  Kriya (act)  Yoga and Gnana] or Who can be worshiped as Viswa  Thaijasa  Pragna and Shiva.  
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

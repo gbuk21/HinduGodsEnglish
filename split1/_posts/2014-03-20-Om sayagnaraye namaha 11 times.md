@@ -5,15 +5,15 @@ youtubeId: Y2kBxJN7RuY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sayagnaraye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is with Asuras who are enemies of Yagna 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

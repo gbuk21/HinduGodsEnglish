@@ -5,15 +5,15 @@ youtubeId: c12YU9snoHQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Trivikramaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has spread in all the three worlds 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

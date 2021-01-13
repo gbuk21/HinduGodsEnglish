@@ -5,15 +5,15 @@ youtubeId: v0QtoGP55eE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vibhagagnaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is an expert in giving boons/punishments according to their deeds 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: RPpbkK9t0O8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Srugala roopaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has assumed the form of a jackal 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

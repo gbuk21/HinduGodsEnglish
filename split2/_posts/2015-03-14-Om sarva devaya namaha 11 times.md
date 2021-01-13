@@ -5,15 +5,15 @@ youtubeId: p_m44CzXATg
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarva devaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is all Gods rolled in to one 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

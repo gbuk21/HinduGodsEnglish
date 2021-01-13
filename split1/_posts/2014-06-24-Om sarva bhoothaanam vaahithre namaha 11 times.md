@@ -5,15 +5,15 @@ youtubeId: 9sMhc0oB4JI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarva bhoothaanam vaahithre nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who makes all animals exist/work 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

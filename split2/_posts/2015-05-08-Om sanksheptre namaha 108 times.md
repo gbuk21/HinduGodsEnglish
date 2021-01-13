@@ -5,15 +5,15 @@ youtubeId: 6S4uf2a8bGw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha yasase nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has very great fame 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

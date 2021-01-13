@@ -5,15 +5,15 @@ youtubeId: xoNHp1Ibhdc
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om sthruvahasthaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who carries the ladle used in fire sacrifice called Sthruva 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

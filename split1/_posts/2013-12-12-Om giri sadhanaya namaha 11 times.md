@@ -5,15 +5,15 @@ youtubeId: sy2-5ejw7ek
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Giri Sadhanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who uses the Meru mountain as bow 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

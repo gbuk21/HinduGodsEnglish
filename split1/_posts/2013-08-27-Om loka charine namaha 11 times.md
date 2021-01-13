@@ -5,15 +5,15 @@ youtubeId: TlKjf3FdeQ4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Loka charine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who travels between the worlds 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

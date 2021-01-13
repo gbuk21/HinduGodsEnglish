@@ -5,15 +5,15 @@ youtubeId: WtvYrAG77mo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vasuradithyaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is a Vasu who is son of Adithi 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

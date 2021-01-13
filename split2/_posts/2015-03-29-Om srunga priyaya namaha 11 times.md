@@ -5,15 +5,15 @@ youtubeId: rkRf075m1Hk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Srunga priyaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who loves peaks of mountains 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

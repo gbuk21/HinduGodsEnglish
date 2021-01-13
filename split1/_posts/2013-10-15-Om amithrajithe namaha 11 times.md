@@ -5,15 +5,15 @@ youtubeId: Vru3kxt0BPk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Amithrajithe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has won over internal and external enemies 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

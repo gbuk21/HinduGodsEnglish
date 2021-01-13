@@ -5,15 +5,15 @@ youtubeId: VJWewWlC6Ms
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Niraayaa nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is without any blemishes 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

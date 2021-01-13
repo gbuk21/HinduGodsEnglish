@@ -5,15 +5,15 @@ youtubeId: 35gVfRzIXxM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om aakasanirviroopaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who makes several forms from the sky like himself 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: jqgiVLL9Dlw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Suvasaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a great place to reside 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

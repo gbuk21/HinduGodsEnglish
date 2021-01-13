@@ -5,15 +5,15 @@ youtubeId: sm1q91Y3ZwY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha dhathave nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has Meru mountain which has lot of minerals 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

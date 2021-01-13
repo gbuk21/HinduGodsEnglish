@@ -5,15 +5,15 @@ youtubeId: u7ktzpIljWA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha thejase nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is having great light and shining 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

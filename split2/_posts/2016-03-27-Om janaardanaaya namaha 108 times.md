@@ -5,15 +5,15 @@ youtubeId: EPDm8Qhfm1w
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bhakthanaam paramayai gathaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the ultimate destination of devotees 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: JwVA_m_z6N0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Yagna Vibhaga vidhe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is an expert in giving the share of each in the fire sacrifice 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

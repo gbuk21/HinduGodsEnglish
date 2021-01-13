@@ -5,15 +5,15 @@ youtubeId: viLPq5qJcVI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarva poojithaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is being worshipped by everybody 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

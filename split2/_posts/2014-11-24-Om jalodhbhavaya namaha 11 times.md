@@ -5,15 +5,15 @@ youtubeId: 7rU19errjNk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Jalodhbhavaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who rose from the water of deluge 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

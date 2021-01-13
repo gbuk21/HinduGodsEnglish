@@ -5,15 +5,15 @@ youtubeId: jH9-ik8t38c
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vishala shakaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has long hands/Who has wide branches 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

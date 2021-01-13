@@ -5,15 +5,15 @@ youtubeId: 4tWpHRBAxhA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarva karmane nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who does all actions 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: PXAU6tk3ri4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Trijadine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a three fold pigtail 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

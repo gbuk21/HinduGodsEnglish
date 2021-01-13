@@ -5,15 +5,15 @@ youtubeId: g-_JcU4nY2o
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Oordhwarethase nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has won over passion 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: 2P1U70BPalg
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Prayathathmane nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a purest mind 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

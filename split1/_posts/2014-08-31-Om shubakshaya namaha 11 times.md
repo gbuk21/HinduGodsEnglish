@@ -5,15 +5,15 @@ youtubeId: 1SNXzCW2wfY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Shubakshaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has the vision that leads to salvation 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

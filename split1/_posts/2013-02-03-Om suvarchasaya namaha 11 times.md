@@ -5,15 +5,15 @@ youtubeId: Et27rxT_nMI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Suvarchasaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has the resplendent light of knowledge 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

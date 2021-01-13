@@ -5,15 +5,15 @@ youtubeId: wZtJdspdIR4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bhooha bhavanayai nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who creates the five great bhoothas such as sky  earth  fire  air and wind  
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

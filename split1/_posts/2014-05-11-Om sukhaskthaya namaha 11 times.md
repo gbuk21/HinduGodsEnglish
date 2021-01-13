@@ -5,15 +5,15 @@ youtubeId: C5ZEq1oqFQQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sukhaskthaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is not interested in pleasures 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

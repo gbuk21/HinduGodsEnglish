@@ -5,15 +5,15 @@ youtubeId: lqIBrl67Htk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Jagatkalasthaalaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has the god of death as his food plate 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

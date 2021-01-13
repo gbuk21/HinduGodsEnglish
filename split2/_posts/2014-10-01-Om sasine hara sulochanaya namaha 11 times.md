@@ -5,15 +5,15 @@ youtubeId: ule8i81ecZk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sasine hara sulochanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has eyes much prettier than the moon 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: FWL-tQr9Ku4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Makaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who resides in the Shimsumara chakra which is of crocodile shape 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

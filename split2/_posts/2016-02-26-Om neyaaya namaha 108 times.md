@@ -5,15 +5,15 @@ youtubeId: BzUgu4ORF1Y
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bahu maalaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has variety of playful acts 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: gZjQj_HHV5Q
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Mahathe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is great 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: fB7aS8yFs_o
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Kethave nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has the form of Kethu 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

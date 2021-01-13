@@ -5,15 +5,15 @@ youtubeId: vSG9UIWQ8wk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Amogharthaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the God to whom prayers are never unanswered 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

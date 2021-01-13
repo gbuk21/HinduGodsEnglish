@@ -5,15 +5,15 @@ youtubeId: QMlxtFxeGrs
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Thwashtre nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in the of Viswakarma  the architect 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

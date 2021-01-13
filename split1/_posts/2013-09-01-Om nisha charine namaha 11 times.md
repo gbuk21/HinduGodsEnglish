@@ -5,15 +5,15 @@ youtubeId: 4Y7Ba4-zaRE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Nisha charine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who travels on the night of deluge 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

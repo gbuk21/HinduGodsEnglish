@@ -5,15 +5,15 @@ youtubeId: OeSRC-JO7jk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Neethyai nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the law 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

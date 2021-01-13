@@ -5,15 +5,15 @@ youtubeId: obAvM1sIt7I
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Yagna samahithaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who can be attained by conducting sacrifices 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

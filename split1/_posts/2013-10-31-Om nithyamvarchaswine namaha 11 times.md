@@ -5,15 +5,15 @@ youtubeId: L8AebCPgp9s
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Nithyamvarchaswine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is always resplendent 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

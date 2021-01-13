@@ -5,15 +5,15 @@ youtubeId: pK4rgSOU-Uo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Prabhavathmane nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has the fame that he is the truth of all truths 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

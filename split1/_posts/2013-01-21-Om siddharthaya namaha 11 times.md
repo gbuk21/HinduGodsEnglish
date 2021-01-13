@@ -5,15 +5,15 @@ youtubeId: OE6Zc2WPrYk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Siddharthaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who his at the acme of occult powers 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

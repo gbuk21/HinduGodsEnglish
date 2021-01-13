@@ -5,15 +5,15 @@ youtubeId: 6SFSnaeIsHA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vaisravanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in the form of Khubera 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

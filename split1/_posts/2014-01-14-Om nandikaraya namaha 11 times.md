@@ -5,15 +5,15 @@ youtubeId: El7way_53fc
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Nandikaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who grants happiness 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

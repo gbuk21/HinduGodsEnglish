@@ -5,15 +5,15 @@ youtubeId: l2JL5H8BH5w
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarvacharine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who travels everywhere 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

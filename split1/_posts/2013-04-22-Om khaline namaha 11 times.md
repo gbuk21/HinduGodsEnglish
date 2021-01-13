@@ -5,15 +5,15 @@ youtubeId: SOY-uIknWHI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Khaline nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the owner of a paddy store 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

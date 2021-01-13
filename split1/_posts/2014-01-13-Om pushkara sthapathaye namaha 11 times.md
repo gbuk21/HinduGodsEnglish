@@ -5,15 +5,15 @@ youtubeId: 81G4aMNUGtQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Pushkara sthapathaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who created the lotus like universe 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

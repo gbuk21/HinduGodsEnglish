@@ -5,15 +5,15 @@ youtubeId: x7JYEAoh-pk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Dhoomakethanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the fire which produces smoke 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

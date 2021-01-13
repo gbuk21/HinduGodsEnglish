@@ -5,15 +5,15 @@ youtubeId: slpAT70tNZY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Dhanvine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who carries a bow 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

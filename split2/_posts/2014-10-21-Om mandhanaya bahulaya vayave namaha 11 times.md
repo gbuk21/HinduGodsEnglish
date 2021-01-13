@@ -5,15 +5,15 @@ youtubeId: y6iGyZl90ys
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Mandhanaya bahulaya vayave nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the wind which churns life at the time of deluge 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

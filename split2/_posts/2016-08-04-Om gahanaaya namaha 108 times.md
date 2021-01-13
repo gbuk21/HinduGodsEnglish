@@ -5,15 +5,15 @@ youtubeId: 0rwcAiPqs0o
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Chchathraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who reduces discomfort like an umbrella 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

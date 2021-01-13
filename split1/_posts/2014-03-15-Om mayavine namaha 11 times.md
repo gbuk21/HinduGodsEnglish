@@ -5,15 +5,15 @@ youtubeId: fV8UKaBekSg
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om mayavine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who creates the world by illusion 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

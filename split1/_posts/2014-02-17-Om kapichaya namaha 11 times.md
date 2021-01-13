@@ -5,15 +5,15 @@ youtubeId: 7SCbhUH9Ack
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Kapichaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is golden in colour 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

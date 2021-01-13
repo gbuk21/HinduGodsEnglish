@@ -5,15 +5,15 @@ youtubeId: Vskv4Y8L0KM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Koola haarine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who breaks the shore in the form of water tide 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

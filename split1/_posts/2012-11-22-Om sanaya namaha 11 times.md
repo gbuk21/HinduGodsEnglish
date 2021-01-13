@@ -5,15 +5,15 @@ youtubeId: Up8Ilr3cPi8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has the form of Saturn 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

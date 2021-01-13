@@ -5,15 +5,15 @@ youtubeId: S9aYp6pYh0c
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Madanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who gives us immense happiness 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

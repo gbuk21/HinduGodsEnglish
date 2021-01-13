@@ -5,15 +5,15 @@ youtubeId: bS_JIpjrbYc
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sthanave nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the axis of the world 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

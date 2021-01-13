@@ -5,15 +5,15 @@ youtubeId: c5XZxdNWLX0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Hayagardhabhaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who travels in the chariot drawn by zebras 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

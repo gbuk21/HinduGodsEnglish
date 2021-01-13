@@ -5,15 +5,15 @@ youtubeId: 5F6ReRNnmkQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Mahakarmane nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who does great actions 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

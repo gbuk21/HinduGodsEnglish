@@ -5,15 +5,15 @@ youtubeId: zPjP1SAkAww
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Devendraya sarva deva mayaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of the form of Devendra and also all other devas 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

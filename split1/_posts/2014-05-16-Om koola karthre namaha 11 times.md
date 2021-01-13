@@ -5,15 +5,15 @@ youtubeId: 5T4jBn_3gcI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Koola karthre nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has made the shores of tanks 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

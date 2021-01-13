@@ -5,15 +5,15 @@ youtubeId: LKf5m9fQzP4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Athandrithaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is not lazy 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: kyHE9zrL2wE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Basmabhoothaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who himself is the form of sacred ash 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

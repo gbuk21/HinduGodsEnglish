@@ -5,15 +5,15 @@ youtubeId: mP6YdGVUN6Y
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Kundine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a water jug (pancha pathra)in his hand 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

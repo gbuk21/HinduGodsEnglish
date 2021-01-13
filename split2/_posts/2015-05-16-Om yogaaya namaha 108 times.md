@@ -5,15 +5,15 @@ youtubeId: PTLl2MMNZmM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Kalabhyo nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the shorter part of the day called Kala 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

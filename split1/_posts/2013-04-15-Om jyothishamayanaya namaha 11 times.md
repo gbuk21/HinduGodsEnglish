@@ -5,15 +5,15 @@ youtubeId: xCJkBdjlIgQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Jyothishamayanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of the form of astrology 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: LzoFcaDZdFE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha roopaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is beyond limits and have a big shape 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

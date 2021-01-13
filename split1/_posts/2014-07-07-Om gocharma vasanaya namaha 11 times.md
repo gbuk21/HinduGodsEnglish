@@ -5,15 +5,15 @@ youtubeId: --KqftjoJaI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Gocharma vasanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who wears the hide of cows 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

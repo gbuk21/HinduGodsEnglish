@@ -5,15 +5,15 @@ youtubeId: 2D58m033l-A
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Varenyaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who can be asked for a boon 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

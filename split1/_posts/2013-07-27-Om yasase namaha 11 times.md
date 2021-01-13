@@ -5,15 +5,15 @@ youtubeId: f71PI2muR14
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Yasase nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who blesses his devotees with fame 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

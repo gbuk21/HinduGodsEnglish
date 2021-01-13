@@ -5,15 +5,15 @@ youtubeId: Mp4KuNd7z0Y
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha Jadaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has bid matted locks 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

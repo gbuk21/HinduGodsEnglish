@@ -5,15 +5,15 @@ youtubeId: M1KhfTJo_5M
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Amoghaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who does not waste his connection/thought or Who is in plenty 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

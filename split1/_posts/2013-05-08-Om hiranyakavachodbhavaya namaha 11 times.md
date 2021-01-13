@@ -5,15 +5,15 @@ youtubeId: LLWE-grqjKc
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Hiranyakavachodbhavaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who appears with a golden apparel(here this apparel is 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

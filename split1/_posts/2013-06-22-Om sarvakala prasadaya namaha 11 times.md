@@ -5,15 +5,15 @@ youtubeId: LcIxPgWlibU
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarvakala prasadaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who showers his grace at all times 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

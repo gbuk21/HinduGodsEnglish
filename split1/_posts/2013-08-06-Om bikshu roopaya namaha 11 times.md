@@ -5,15 +5,15 @@ youtubeId: QoC1rwCkXA8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bikshu roopaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who looks like a beggar 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

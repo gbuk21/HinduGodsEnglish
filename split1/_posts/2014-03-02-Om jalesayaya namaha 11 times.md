@@ -5,15 +5,15 @@ youtubeId: JOE_hVEcXI8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Jalesayaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who sleeps on water in the form of Vishnu 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

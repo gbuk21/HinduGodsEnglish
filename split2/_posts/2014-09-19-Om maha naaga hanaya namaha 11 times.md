@@ -5,15 +5,15 @@ youtubeId: TqGg43KMDu8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha naaga hanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who killed Gajasura who had immense form 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

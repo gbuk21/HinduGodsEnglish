@@ -5,15 +5,15 @@ youtubeId: vgKN5B4fW4I
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Haryaswaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the form of Sun who has green horses 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

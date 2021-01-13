@@ -5,15 +5,15 @@ youtubeId: tNKLdU3Mnvo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Pithamahaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the father of father 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

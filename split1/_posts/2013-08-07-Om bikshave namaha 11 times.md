@@ -5,15 +5,15 @@ youtubeId: xHlEBmu7jQE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bikshave nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of the form of one who eats what he gets as alms 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

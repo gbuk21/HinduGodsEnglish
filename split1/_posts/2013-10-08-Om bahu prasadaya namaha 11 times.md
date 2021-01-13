@@ -5,15 +5,15 @@ youtubeId: NV-Vg7EnCF4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bahu prasadaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is greatly pleased 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: -GP1gUxF5lg
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Parya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is earlier than the earliest 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

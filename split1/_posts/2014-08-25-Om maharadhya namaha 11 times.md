@@ -5,15 +5,15 @@ youtubeId: VO53T6F4xkA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maharadhya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a very big chariot 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

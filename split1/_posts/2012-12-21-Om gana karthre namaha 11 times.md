@@ -5,15 +5,15 @@ youtubeId: BPvsYx_OzTM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Gana karthre nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who creates the ganas 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

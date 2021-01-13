@@ -5,15 +5,15 @@ youtubeId: 77-esTiKOjQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Samvathsaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the year 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

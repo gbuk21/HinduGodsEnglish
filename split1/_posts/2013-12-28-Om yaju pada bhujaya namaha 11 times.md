@@ -5,15 +5,15 @@ youtubeId: xfkA9rTsMUw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Yaju pada bhujaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has Yajurveda as hands and legs 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

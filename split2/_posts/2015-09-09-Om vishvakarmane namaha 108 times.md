@@ -5,15 +5,15 @@ youtubeId: ehxn-J8zA9s
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sthavaraanaam pathaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the king of mountains 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

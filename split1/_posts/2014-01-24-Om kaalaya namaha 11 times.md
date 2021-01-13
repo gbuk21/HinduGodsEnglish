@@ -5,15 +5,15 @@ youtubeId: 9ZNdN5jCRqI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Kaalaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who creates the life of birth and death over time 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: dtb8xW_lphE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maharnava nipanavidhe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who drinks the oceans at time of deluge 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

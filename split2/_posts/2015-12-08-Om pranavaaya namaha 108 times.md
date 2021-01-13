@@ -5,15 +5,15 @@ youtubeId: DgdxcjWHC1Q
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Padma garbhaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of the form of Brahma who was born in a lotus 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

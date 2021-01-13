@@ -5,15 +5,15 @@ youtubeId: pyI38_uocKU
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Trilochanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is having three eyes 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

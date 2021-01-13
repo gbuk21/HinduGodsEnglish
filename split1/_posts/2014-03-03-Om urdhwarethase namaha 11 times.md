@@ -5,15 +5,15 @@ youtubeId: m4MgDbxil4o
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Urdhwarethase nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has the greatest gods like Brhama and Vishnu as subjects 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

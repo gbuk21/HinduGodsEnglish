@@ -5,15 +5,15 @@ youtubeId: _3-ovWs4Syg
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sathya vrathaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has made truth his unfailing credo 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: FeUKkTsYy2I
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sookshmaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has minutest knowledge 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

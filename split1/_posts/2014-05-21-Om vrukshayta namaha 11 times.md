@@ -5,15 +5,15 @@ youtubeId: 6HiFWTola2Y
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vrukshayta nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is in the form of a tree 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: mAlZJp246kI
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vruksha karma sthithaye nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is on the top of the ear like leaf of the tree during deluge 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

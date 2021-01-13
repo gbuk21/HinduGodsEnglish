@@ -5,15 +5,15 @@ youtubeId: UmHjLEmN_OE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sree mathe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is richly intelligent 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: EluvTYYJy4A
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha megha nivasine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who resides in the clouds at the time of deluge 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

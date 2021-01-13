@@ -5,15 +5,15 @@ youtubeId: w9Lk8m9oIm4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarpacheera nivasanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who ties a serpent over his apparel 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

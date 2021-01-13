@@ -5,15 +5,15 @@ youtubeId: u1sbHAgk8W0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Simha vahanya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who rides on a lion   which is the vehicle of his consort 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

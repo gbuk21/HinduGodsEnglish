@@ -5,15 +5,15 @@ youtubeId: 3cxhNsf07G0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Anilabhaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is like wind (Who cannot be seen  but understood) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

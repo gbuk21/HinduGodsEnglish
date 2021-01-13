@@ -5,15 +5,15 @@ youtubeId: Kzkz_q46vTQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Swayabhuva sthigmathejase nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has the power which could not be tolerated by Brahma 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

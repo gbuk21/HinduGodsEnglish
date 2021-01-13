@@ -5,15 +5,15 @@ youtubeId: _kCjpqOol10
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Divi suparvana devaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is God to even Indra who is in heaven 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

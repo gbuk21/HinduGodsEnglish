@@ -5,15 +5,15 @@ youtubeId: C-HVOWYwwek
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Niyamendra vardhanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who controls all his senses through penance 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

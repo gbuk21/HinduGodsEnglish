@@ -5,15 +5,15 @@ youtubeId: 5NlB6hFtcbU
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Paramatmane nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the soul which is everywhere 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

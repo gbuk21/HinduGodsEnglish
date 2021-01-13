@@ -5,15 +5,15 @@ youtubeId: MSnpQ6Ix7p0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Paksha roopaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who helps in the form of our friends 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: vHrE8Y4H2Xs
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Kanthaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the upper limit of happiness 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

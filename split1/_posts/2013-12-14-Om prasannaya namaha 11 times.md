@@ -5,15 +5,15 @@ youtubeId: 8YpOFgn9jpM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Prasannaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has pity towards his devotees 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

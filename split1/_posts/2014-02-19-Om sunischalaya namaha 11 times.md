@@ -5,15 +5,15 @@ youtubeId: AL9qo94cXos
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sunischalaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a form which is totally stable 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

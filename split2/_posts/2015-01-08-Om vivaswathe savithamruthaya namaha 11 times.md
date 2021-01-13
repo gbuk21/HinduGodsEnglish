@@ -5,15 +5,15 @@ youtubeId: 67M97S5_lgg
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vivaswathe savithamruthaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the moon who drenches the world by his nectar like rays 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: i-L7D9kIxHM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Athma sambhavaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who created himself 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

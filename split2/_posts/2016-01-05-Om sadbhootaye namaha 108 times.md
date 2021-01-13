@@ -5,15 +5,15 @@ youtubeId: QIC5YN5XkcQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Trikakudhe mantraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the mantra with three parts viz Bheejam(root)  Shakthi(power) and Keelagam(the nail) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

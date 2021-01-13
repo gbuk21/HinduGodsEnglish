@@ -5,15 +5,15 @@ youtubeId: Rqbr0ct2fu4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha romaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has very big hair 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

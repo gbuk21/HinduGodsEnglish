@@ -5,15 +5,15 @@ youtubeId: fYNagKkyLiY
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha Damshtraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has ling incisor teeth 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

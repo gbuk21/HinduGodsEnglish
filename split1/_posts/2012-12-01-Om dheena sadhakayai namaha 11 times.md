@@ -5,15 +5,15 @@ youtubeId: kFvpgkZ5d8g
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Dheena sadhakayai nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who fulfills desires of poor people 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

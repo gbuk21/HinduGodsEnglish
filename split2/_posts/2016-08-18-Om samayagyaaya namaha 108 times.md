@@ -5,15 +5,15 @@ youtubeId: cjy2WF-1Er0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Avyakthaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who cannot be described clearly 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

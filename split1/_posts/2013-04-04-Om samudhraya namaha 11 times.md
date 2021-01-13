@@ -5,15 +5,15 @@ youtubeId: kC3drDft8ZM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Samudhraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of the form of ocean 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

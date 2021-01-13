@@ -5,15 +5,15 @@ youtubeId: 3tT7X2SOXe8
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Labhidoshtaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has hanging lips during deluge 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

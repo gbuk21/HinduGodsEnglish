@@ -5,15 +5,15 @@ youtubeId: lDb_4sv2ER4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Harinaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of golden colour/Who is like a deer 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: j6PV_popOs0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Ahacharaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of the form of devas traveling by day time 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

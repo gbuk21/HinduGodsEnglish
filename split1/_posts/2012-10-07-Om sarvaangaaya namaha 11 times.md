@@ -5,15 +5,15 @@ youtubeId: trntUwYCT9A
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Sarvaangaaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has all the world as his organs 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

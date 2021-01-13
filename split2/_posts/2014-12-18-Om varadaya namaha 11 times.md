@@ -5,15 +5,15 @@ youtubeId: BI-mr1tPZ0Q
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Varadaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who shows mercy to the world in several forms 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

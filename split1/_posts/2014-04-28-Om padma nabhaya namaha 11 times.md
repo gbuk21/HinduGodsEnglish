@@ -5,15 +5,15 @@ youtubeId: 0qfzbTPG1Cs
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Padma nabhaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who keeps the lotus in his belly button/Who is of the form of Vishnu 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

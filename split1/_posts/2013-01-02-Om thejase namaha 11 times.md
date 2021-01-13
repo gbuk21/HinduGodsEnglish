@@ -5,15 +5,15 @@ youtubeId: hBvJ6ArSCcQ
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Thejase nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who shines like light 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

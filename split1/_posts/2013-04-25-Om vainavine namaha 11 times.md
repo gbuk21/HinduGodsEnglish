@@ -5,15 +5,15 @@ youtubeId: 2zp2DL7AKrk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vainavine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a flute in his hand 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

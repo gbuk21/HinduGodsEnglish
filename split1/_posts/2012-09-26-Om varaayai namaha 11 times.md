@@ -5,15 +5,15 @@ youtubeId: XmLXi27vIbE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Varaayai nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who spreads everything and make them invisible 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

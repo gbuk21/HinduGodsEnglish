@@ -5,15 +5,15 @@ youtubeId: HNRCqBCe3n4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Vyakthavyakthaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is clear to devotees and invisible to others 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

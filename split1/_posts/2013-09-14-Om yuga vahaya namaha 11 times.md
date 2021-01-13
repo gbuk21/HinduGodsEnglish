@@ -5,15 +5,15 @@ youtubeId: KmbkLbhdcuU
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Yuga vahaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who creates Yugas(long periods of time) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: nK5AbPKtHcs
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Upa santhaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who controls his power and does not show it 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

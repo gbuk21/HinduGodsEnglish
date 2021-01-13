@@ -5,15 +5,15 @@ youtubeId: k7c5Mv6ICKo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Naika sanu charaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who travels in several mountain peaks 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

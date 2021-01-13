@@ -5,15 +5,15 @@ youtubeId: e1nkRk38NjM
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Druthimathe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is of the form of stable minded 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

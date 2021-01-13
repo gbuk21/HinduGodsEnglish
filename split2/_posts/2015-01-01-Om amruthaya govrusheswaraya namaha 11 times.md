@@ -5,15 +5,15 @@ youtubeId: 1uX48zqzii0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Amruthaya Govrusheswaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the god of perennial dharma which is the lord of earth 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

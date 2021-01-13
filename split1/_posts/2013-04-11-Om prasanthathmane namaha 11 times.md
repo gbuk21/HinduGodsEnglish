@@ -5,15 +5,15 @@ youtubeId: B7_LWa7G9ow
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Prasanthathmane nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is as peaceful as an ocean after tide 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

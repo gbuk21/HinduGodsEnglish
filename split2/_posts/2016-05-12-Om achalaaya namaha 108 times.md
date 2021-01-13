@@ -5,15 +5,15 @@ youtubeId: 8fG3e_Dj6pk
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Uma kanthaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has been married by Uma out of love 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

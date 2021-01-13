@@ -5,15 +5,15 @@ youtubeId: RAjQu9nbzf4
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Bhagine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has share in the fire sacrifice 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

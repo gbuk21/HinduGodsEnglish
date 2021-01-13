@@ -5,15 +5,15 @@ youtubeId: lIhIi4x_e9M
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Narthakaaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the dancer or who makes everything dance 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

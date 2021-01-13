@@ -5,15 +5,15 @@ youtubeId: IDEDCVIuniE
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Maha krodhaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is very angry at the time of destruction 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

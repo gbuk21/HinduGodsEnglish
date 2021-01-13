@@ -5,15 +5,15 @@ youtubeId: EEqFeaPiq_c
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Damanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who controls bad people 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

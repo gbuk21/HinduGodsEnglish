@@ -5,15 +5,15 @@ youtubeId: uf0fjtRErGo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Aswaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who us in the form of a horse 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

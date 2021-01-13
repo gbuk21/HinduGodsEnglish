@@ -5,15 +5,15 @@ youtubeId: 9KpK3Ja_X7I
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Devasura parayanaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the support for Devas and Asuras 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

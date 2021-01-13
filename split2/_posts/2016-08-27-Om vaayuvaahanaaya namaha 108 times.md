@@ -5,15 +5,15 @@ youtubeId: 0XASu0P0pE0
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Srungine nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is high above(Who is the horned animals) 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

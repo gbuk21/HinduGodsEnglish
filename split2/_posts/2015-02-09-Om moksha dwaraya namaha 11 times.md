@@ -5,15 +5,15 @@ youtubeId: 7h0Loe2NUuo
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Moksha dwaraya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the gateway to salvation 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

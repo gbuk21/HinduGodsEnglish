@@ -5,15 +5,15 @@ youtubeId: 6NTN8Xg9nWw
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Swasthibhavaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who has a great place of stay 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

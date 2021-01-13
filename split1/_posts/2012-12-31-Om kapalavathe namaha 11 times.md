@@ -5,15 +5,15 @@ youtubeId: Bf9wlNxqO8s
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Kapalavathe nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who carries the skull of Brahma with him 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

@@ -5,15 +5,15 @@ youtubeId: pvI1uVY4_co
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Suradhyakshaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who is the Lord of all devas 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  

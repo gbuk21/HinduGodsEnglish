@@ -5,15 +5,15 @@ youtubeId: p8DYU_EdczA
 ---
  
  
-Helps get goodness, bliss and peace and God's blessings
+Om Nishkarmaaya nama 
  
-Helps remain focused, help generate inner energy 
+ -  Who does not do any work 
  
-Helps boost physical and mental health 
+  
  
-Helps remain grounded and generates a sense of gratitude towards the greater power 
+  
  
-Helps reduce bad karma
+ 
  
  
  
