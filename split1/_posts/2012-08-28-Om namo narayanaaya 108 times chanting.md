@@ -4,10 +4,7 @@ title: Om Namo Narayanaaya 108 times chanting
 youtubeId: l2JL5H8BH5w
 ---
  
- 
-Om Sarvacharine nama 
- 
- -  Who travels everywhere 
+In this video, you will see/listen to Om namo narayanaaya chants for 108 times. It help will with your meditational needs.
 
 
 
