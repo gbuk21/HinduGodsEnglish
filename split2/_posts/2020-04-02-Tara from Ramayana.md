@@ -1,4 +1,10 @@
-
+---
+layout: post
+last_modified_at: 2021-04-02
+title: Tara from Ramayana
+---
+ 
+ 
 1) Who was Tara in Ramayan?
 
 She was Vali's wife and Sugriva(after the death of Vali)
