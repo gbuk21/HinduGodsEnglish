@@ -1,10 +1,5 @@
-last_modified_at: 2021-03-29
 
-
-{{ page.last_modified_at | date: '%Y:%B:%A:%d:%S:%R' }}
-
-
-1) Who was Tara in MahaBharat?
+1) Who was Tara in Ramayan?
 
 She was Vali's wife and Sugriva(after the death of Vali)
 
