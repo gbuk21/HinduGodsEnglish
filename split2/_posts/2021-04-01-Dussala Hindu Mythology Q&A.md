@@ -1,3 +1,9 @@
+---
+layout: post
+last_modified_at: 2021-04-07
+title: Dussala  from MahaBharat
+---
+
 <H3> 1) Who is Dussala in MahaBharat? </H3>
 
 She is Kaurava's only sister.
