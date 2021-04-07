@@ -1,3 +1,8 @@
+---
+layout: post
+last_modified_at: 2021-04-07
+title: Mandodari from Ramayana
+---
 
 1) Who was Mandodari in Ramayana?
 
