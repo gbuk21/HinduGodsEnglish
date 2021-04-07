@@ -143,7 +143,7 @@ Tara, Lord Hanuman and Angada
 Ahalya, Draupadi, Kunti, Tara and Mandodari
 
 
-
+[Next - Mandodari from Ramayana Hindu Mythology Q&A ]({{ site.baseurl }}{% link  split2/_posts/2020-04-02-Mandodari from Ramayana Hindu Mythology Q&A .md %})
 
 
 
