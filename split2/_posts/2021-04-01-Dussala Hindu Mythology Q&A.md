@@ -13,3 +13,5 @@ Suratha.
 <H3> 4) For which kingdom, Dussala was the queen?</H3>
 
 Sindhu.
+
+[Next - Tara from Ramayana Hindu Mythology Q&A]({{ site.baseurl }}{% link  split2/_posts/2020-04-02-Tara from Ramayana Hindu Mythology Q&A.md %})
