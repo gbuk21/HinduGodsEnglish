@@ -67,3 +67,7 @@ She tried to pursuade him to give up Sita.
 16) Why did Vibhishan marry Mandodari after the death of Ravana?
 
 to get the right to rule Lanka and as an act of statesmenship.
+
+
+[Next - Gandhari from MahaBharat Hindu Mythology Q&A]({{ site.baseurl }}{% link  split2/_posts/2021-04-08-Gandhari from MahaBharat Hindu Mythology Q&A.md %})
+
