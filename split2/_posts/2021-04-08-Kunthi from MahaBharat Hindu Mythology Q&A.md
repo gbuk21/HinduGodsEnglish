@@ -1,3 +1,9 @@
+---
+layout: post
+last_modified_at: 2021-04-08
+title: Kunthi from MahaBharat Hindu Mythology Q&A - More than 40 questions
+---
+
 1) What was another name of Kunthi?
 
 Prutha
