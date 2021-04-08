@@ -137,7 +137,7 @@ Gandharir abedon
 
 
 
-
+[Next - Kunthi from MahaBharat Hindu Mythology Q&A]({{ site.baseurl }}{% link  split2/_posts/2021-04-08-Kunthi from MahaBharat Hindu Mythology Q&A.md %})
 
 
 
