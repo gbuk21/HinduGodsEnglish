@@ -178,3 +178,4 @@ That women can never keep a secret
 
 
 
+[Next - Draupadi from MahaBharat Hindu Mythology Q&A]({{ site.baseurl }}{% link  split2/_posts/2021-04-10-Draupadi from MahaBharat Hindu Mythology Q&A.md %})
