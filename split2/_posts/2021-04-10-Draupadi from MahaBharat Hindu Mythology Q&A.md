@@ -1,8 +1,8 @@
-----
+---
 layout: post
 last_modified_at: 2021-04-10
 title: Draupadi from MahaBharat Hindu Mythology Q&A - More than 110 questions
-----
+---
 
 
 1) What were some other names of Draupadi?
