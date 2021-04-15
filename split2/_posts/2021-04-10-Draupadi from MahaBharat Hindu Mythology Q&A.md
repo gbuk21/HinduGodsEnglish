@@ -1,9 +1,8 @@
-
----
+----
 layout: post
 last_modified_at: 2021-04-10
 title: Draupadi from MahaBharat Hindu Mythology Q&A - More than 110 questions
----
+----
 
 
 1) What were some other names of Draupadi?
@@ -431,16 +430,23 @@ Panipuri
 107) What are the  instances of Polyandry in Hindu Mythology? Polyandry is one woman marrying multiple men at the same time
 
 Draupadi
+
 Jatila - Gautam muni's clan- married 7 Saptarshi
+
 Pracheti - Hiranyaksha's sister - married to 10 brothers
+
 Princess Madhavi - daughter of King Yayati - married to 4 men
 
 108) What are the names of  Draupadi and Pandavas?
 
 Suthanu - from Yudhishthira
+
 Samyukthana -from Bheema
+
 Pragati and Pragya/Prathigya (twins) - from Arjuna
+
 Printha -from Nakula
+
 Sumithra - from Sahadeva)
 
 109) In B. R. Chopra's Mahabharat , who acted as Draupadi? 
