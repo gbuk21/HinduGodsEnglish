@@ -452,3 +452,4 @@ Sumithra - from Sahadeva)
 109) In B. R. Chopra's Mahabharat , who acted as Draupadi? 
 Roopa Ganguly
 
+[Next - Yudhistira from MahaBharat Hindu Mythology Q&A]({{ site.baseurl }}{% link  split2/_posts/2021-04-15-Yudhistira from MahaBharat Hindu Mythology Q&A.md %})
