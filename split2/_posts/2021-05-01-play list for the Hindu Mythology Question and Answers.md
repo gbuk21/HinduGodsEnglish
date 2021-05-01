@@ -7,3 +7,5 @@ youtubeId: PLO794kREfZK1Nk_-meAn6e3VsTnN6ZdEq
  
  
 play list for the Hindu Mythology Question and Answers
+
+{% include youtubePlayer.html id=page.youtubeId %}
