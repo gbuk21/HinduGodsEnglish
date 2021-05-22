@@ -1,5 +1,3 @@
-UCTM4VZLDoQiteK3mZ_dYZ2g
-
 ---
 layout: post
 last_modified_at: 2021-05-22
