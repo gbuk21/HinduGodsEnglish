@@ -15,6 +15,7 @@ input[type="text"] {
     margin-right: 0px;
     margin-top: 0px;
     margin-bottom: 0px;
+    text-align: center;
 }    
    
 table {
@@ -23,7 +24,7 @@ table {
   border: 1px solid black;  
 }
 caption {
-    text-align: left;
+    text-align: center;
     margin-bottom: 5px;
     text-transform: lowercase;
     font-size: 160%;
@@ -34,7 +35,7 @@ caption {
 th, td {
   font-family: courier new;  
   font-size: 8px  
-  text-align: left;
+  text-align: center;
   padding: 8px;
   border: 1px solid black;  
 }
