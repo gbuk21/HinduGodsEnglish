@@ -1,7 +1,7 @@
 ---
 last_modified_at: 2021-05-30
 layout: post
-title: Bhagavadgita based crossword puzzle 1
+title: Bhagavadgita verses based crossword puzzle 1
 ---
 <style>
 * { 
