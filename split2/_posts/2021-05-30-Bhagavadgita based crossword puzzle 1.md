@@ -2662,3 +2662,6 @@ across
 __ karmaphalasanyogam svabhavas tu pravartate
 </td></tr>
 </Table>
+<br>
+<br>
+[Bhagavadgita based crossword puzzle 1 - Answers]({{ site.baseurl }}{% link split2/_posts/2021-05-30-Bhagavadgita based crossword puzzle 1 - Answers.md%})
