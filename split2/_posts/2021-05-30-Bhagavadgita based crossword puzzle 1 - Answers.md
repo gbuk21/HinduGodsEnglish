@@ -15,6 +15,7 @@ input[type="text"] {
     margin-right: 0px;
     margin-top: 0px;
     margin-bottom: 0px;
+    text-align: center;
 }    
    
 table {
