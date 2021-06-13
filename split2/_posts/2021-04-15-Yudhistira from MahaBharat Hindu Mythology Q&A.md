@@ -193,4 +193,4 @@ Yamadev
 
 Due to his  half lie to Drona about Aswathama dying in Kurukshetra war
 
-[Next - Tara from Ramayana Hindu Mythology Q&A]({{ site.baseurl }}{% link  split2/_posts/2020-04-02-Tara from Ramayana Hindu Mythology Q&A.md %})
+[Next - Om sena kalpaya namaha]({{ site.baseurl }}{% link  split2/_posts/2014-09-16-Om sena kalpaya namaha 11 times.md %})
