@@ -193,4 +193,4 @@ Yamadev
 
 Due to his  half lie to Drona about Aswathama dying in Kurukshetra war
 
-[Next - Om sena kalpaya namaha]({{ site.baseurl }}{% link  split2/_posts/2014-09-16-Om sena kalpaya namaha 11 times.md %})
+[Next]({{ site.baseurl }}{% link  split2/_posts/2021-06-20-Bhima from MahaBharat Hindu Mythology Q&A.md %})
