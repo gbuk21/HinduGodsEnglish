@@ -142,4 +142,4 @@ Some reasons offered were Bhima's gluttony, pride and battling
 Praveen Kumar
 
 
-[Next]({{ site.baseurl }}{% link  split2/_posts/2021-06-20-Bhima from MahaBharat Hindu Mythology Q&A.md %})
+[Next]({{ site.baseurl }}{% link  split2/_posts/2021-06-20-Arjuna from MahaBharat Hindu Mythology Q&A.md %})
