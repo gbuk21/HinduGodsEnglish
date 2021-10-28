@@ -3,6 +3,8 @@ last_modified_at: 2021-10-28
 layout: post
 title: Lakshmi Kubera Mantras chant - whole day long
 ---
+  <body>
+
     <!-- 1. The <iframe> (and video player) will replace this <div> tag. -->
     <div id="player"></div>
 
@@ -57,3 +59,4 @@ title: Lakshmi Kubera Mantras chant - whole day long
         }
       }
     </script>
+  </body>
